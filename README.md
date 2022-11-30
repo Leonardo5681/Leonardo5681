@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Leonardo5681
 - 👀 I’m interested in Minecraft
 - 🌱 I’m currently learning Informatics
+❤️I love retrogaming
 - I like IT
 - I am Italian
 <!---
